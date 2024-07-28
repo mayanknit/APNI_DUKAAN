@@ -16,7 +16,7 @@ Now say goodbye to those tensions because [https://mayanknit.github.io/E-COMMERC
 Everything you are looking for is just a click away at [Apni Dukaan]https://mayanknit.github.io/E-COMMERCE-SYSTEM-APNI-DUKAAN-/). Stop wandering around packed malls to compare prices, as you can grab a bargain at [Apni Dukaan](https://qazimaazarshad.github.io/Apni-Dukaan/) where everything is cheaper than the market, and your purchases will be at your doorsteps without much wait.
 <p align="center"><img src="https://media.tenor.com/images/4f49a0b0e1f4dc01b809a9886bdcc372/tenor.gif" width = 55%></p>
 
-Take a chill pill because [Apni Dukaan](https://mayanknit.github.io/E-COMMERCE-SYSTEM-APNI-DUKAAN-/) is here to save you from headaches of traditional shopping.
+Take a chill pill because [Apni Dukaan](https://mayanknit88.github.io/E-COMMERCE-SYSTEM-APNI-DUKAAN-//) is here to save you from headaches of traditional shopping.
 <p align="center"><img src="https://media1.tenor.com/images/84870528cb9933ad568d5a042a0cd03f/tenor.gif" width = 60%></p>
 
 ## A sneak peek into what we have here🙈 :
